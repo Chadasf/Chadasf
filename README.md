@@ -2,7 +2,7 @@
 - 👀 I’m interested in story writing
 - 🌱 I’m currently learning nothing 
 - 💞️ I’m not looking to collaborate. Pls F off
-- 📫 How to reach me-reteryzet@gmail.com (pls dont). 
+- 📫 How to reach me- reteryzet@gmail.com (pls dont). 
 
 <!---
 Chadasf/Chadasf is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
